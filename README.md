@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning HTML (duh)
 - 💞️ I’m looking to collaborate on nothing, at the moment.
 - 📫 How to reach me: Discord is "lightloss.", add me there!
-- 😄 Pronouns: I'm pansexual and gay, and go by he/they!
+- 😄 Pronouns: I'm genderfluid, anypronouns work but she/her preferred!
 - ⚡ Fun fact: I'm stupid lol
 
 <!---
